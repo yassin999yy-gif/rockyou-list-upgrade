@@ -1,0 +1,2 @@
+# rockyou-list-upgrade
+🚀 RockYou 2026 Ultimate The 2026 evolution of RockYou! 🛡️ Updated from 14M to 178.5M+ unique passwords. ✅ Cleaned (6+ chars) ✅ Modernized (2025/26 suffixes &amp; symbols) ✅ Ultra-compressed (2.1GB to 350MB)  🌍 تطوير RockYou الأسطورية لعام 2026 توسيع القائمة لـ 178.5 مليون كلمة فريدة. ✅ تنظيف وإضافة رموز وسنوات حديثة. ✅ ضغط احترافي للأداء العالي.
